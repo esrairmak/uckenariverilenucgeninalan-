@@ -1,0 +1,2 @@
+# uckenariverilenucgeninalan-
+Patika.dev
